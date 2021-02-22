@@ -1,2 +1,2 @@
 # project-X
-# xdd palac młodzierzy
+# Bardzo dobre bo pomarańczowe
